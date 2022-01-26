@@ -1,0 +1,1 @@
+# ProjectCryptocompare_ST2TRD
